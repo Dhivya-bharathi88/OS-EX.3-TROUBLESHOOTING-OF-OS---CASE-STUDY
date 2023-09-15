@@ -1,7 +1,7 @@
 # OS-EX.3-TROUBLESHOOTING-OF-OS---CASE-STUDY
 
 AIM:
-
+ddfjbf ffjifjikjie
 STEPS:
 
 
